@@ -1,7 +1,7 @@
 //═══════════════════════════════════════════════════════//
 //
-//                              @Jessi-by Mr.White Shadow
-//@Thanks_to_Mr.Chabby To help me
+//                           @_cyber chamiya
+//@Thanks_
 //
 //════════════════════════════//
 
